@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any Project
 - 📫 You can reach me by email to ejamal009@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Friendly 
+- ⚡ Fun fact: I can play basketball
 
 <!---
 essajamal/essajamal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
